@@ -26,8 +26,7 @@ I continue to practice these values today with my son Elai and my extensive work
 Giving back to the community has and will be a continuing passion of mine and I hope that my education will provide me the skills to share that with young women in need. 
 I would love the opportunity to pass along my knowledge, and show them what technology has to offer the young women of our community!
 
-### 4. Tell us about a time you made a mistake that you learned a lot from.
-If you encountered the situation again, what would you do differently?
+### 4. Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently?
 There is one mistake in my life that has nothing to do with technology that I would like to share as it
 deeply impacted the course of my life.  When I was 18 I was drafted into the Israeli Army, as it is mandatory in Israel. 
 The year before I was to enter I received a letter that requested I fill out a list of goals, desires and potential jobs
